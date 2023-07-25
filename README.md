@@ -1,8 +1,8 @@
-- Hi, I’m @Barcotinho2
-- I’m interested in studying
-- I’m currently learning to program
+- Without that hello, first of all go fuck yourself, I’m @Barcotinho2
+- I’m interested in nothing of my interested:/
+- I’m currently learning nothing usefull
 - How to reach me: emanuel.barcote@escola.pr.gov.br
-- A hug, thanks:+1:
+- FUCK YOU ALL:+1::+1:
 
 <!---
 Barcotinho2/Barcotinho2 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
