@@ -1,5 +1,5 @@
 
-<h3 align=center> Without that hello, first of all go fuck yourself, I’m @Barcotinho2</h3>
+<h3 > Without that hello, first of all go fuck yourself, I’m @Barcotinho2</h3>
  
  <p>I’m interested in nothing of my interested:/</p>
  
