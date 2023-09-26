@@ -1,5 +1,5 @@
 
-<p style="font-size: '50'"> Without that hello, first of all go fuck yourself, I’m @Barcotinho2</p>
+<p> Without that hello, first of all go fuck yourself, I’m @Barcotinho2</p>
  
  <p>I’m interested in nothing of my interested:/</p>
  
